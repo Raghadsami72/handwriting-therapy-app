@@ -76,5 +76,5 @@ To everyone who uses this: you are so strong. Never give up, and always have fai
 
 If you'd like to collaborate or learn more:
 
-Email: `raghadsami.badarneh@example.com`  
+Email: `raghadbadarneh850@gmail.com`  
 GitHub: [github.com/Raghadsami72](https://github.com/Raghadsami72)
